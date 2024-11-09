@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **abenezersisay7@gmail.com**
 
-- ⚡ Fun fact **I have a strange affection for terminals 💻. **
+- ⚡ Fun fact **I have a strange affection for terminals 💻.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
